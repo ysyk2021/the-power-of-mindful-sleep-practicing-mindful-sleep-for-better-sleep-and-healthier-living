@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Sleep: Strategies for cultivating a mindful sleep routine
+Strategies for cultivating a mindful sleep routine
 =========================================================================================================
 
 In this chapter, we will explore various techniques and exercises for cultivating a mindful sleep routine. These practices can help calm the mind, reduce stress, and prepare the body for restful sleep.

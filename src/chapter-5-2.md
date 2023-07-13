@@ -1,4 +1,4 @@
-Chapter 4: Applying Mindful Sleep in Daily Life: Benefits of Mindful Sleep for Mental and Physical Health
+Benefits of Mindful Sleep for Mental and Physical Health
 =========================================================================================================
 
 In this chapter, we will explore the many benefits of mindful sleep for both mental and physical health.

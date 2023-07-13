@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful sleep for better sleep and healthier living](chapter-1-2.md)
 - [Chapter 1: Understanding Sleep](chapter-2.md)
@@ -32,8 +31,4 @@
   - [Benefits of mindful sleep for mental and physical well-being](chapter-8-1.md)
   - [Managing chronic pain and illness with mindful sleep](chapter-8-2.md)
   - [Building resilience through mindful sleep](chapter-8-3.md)
-- [Chapter 8: Conclusion](chapter-9.md)
-  - [Reflection on the power of mindful sleep](chapter-9-1.md)
-  - [Final thoughts and recommendations for continuing the journey of better sleep and healthier living with mindful sleep](chapter-9-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

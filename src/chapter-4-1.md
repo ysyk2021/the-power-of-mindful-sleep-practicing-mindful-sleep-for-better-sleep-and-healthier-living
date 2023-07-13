@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Sleep: Guided Meditations and Mindfulness Exercises for Sleep
+Guided Meditations and Mindfulness Exercises for Sleep
 =============================================================================================================
 
 In this chapter, we will explore various guided meditations and mindfulness exercises that can promote relaxation and restful sleep.

@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Sleep: Body Scan Meditation for Sleep
+Body Scan Meditation for Sleep
 =====================================================================================
 
 In this chapter, we will explore the body scan meditation technique for promoting relaxation and restful sleep.

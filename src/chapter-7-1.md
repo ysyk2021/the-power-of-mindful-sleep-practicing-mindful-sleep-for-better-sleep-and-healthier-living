@@ -1,4 +1,4 @@
-Chapter 6: Mindful Sleep and Productivity: The Relationship Between Sleep and Productivity
+The Relationship Between Sleep and Productivity
 ==========================================================================================
 
 In this chapter, we will explore the relationship between sleep and productivity and how practicing mindful sleep can improve workplace performance.

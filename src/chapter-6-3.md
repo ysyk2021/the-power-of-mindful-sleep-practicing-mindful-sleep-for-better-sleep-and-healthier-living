@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles to Mindful Sleep: Sustaining a regular mindful sleep practice
+Sustaining a regular mindful sleep practice
 =============================================================================================
 
 In this chapter, we will explore common obstacles that can interfere with a regular mindful sleep practice and provide strategies for overcoming them.

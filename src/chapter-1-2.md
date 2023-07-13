@@ -1,4 +1,4 @@
-Introduction: Importance of Mindful Sleep for Better Sleep and Healthier Living
+Importance of Mindful Sleep for Better Sleep and Healthier Living
 ===============================================================================
 
 In today's fast-paced world, many people struggle with getting enough quality sleep. Poor sleep quality can have significant consequences for physical and mental health, including an increased risk of chronic diseases, impaired immune function, and negative impacts on mood and cognitive function.

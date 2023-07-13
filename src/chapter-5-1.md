@@ -1,4 +1,4 @@
-Chapter 4: Applying Mindful Sleep in Daily Life: Using mindful sleep to improve sleep quality
+Using mindful sleep to improve sleep quality
 =============================================================================================
 
 In this chapter, we will explore practical ways to apply mindful sleep practices in daily life to improve sleep quality.

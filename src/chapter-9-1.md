@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Reflection on the Power of Mindful Sleep
+Reflection on the Power of Mindful Sleep
 ===============================================================
 
 In this book, we have explored the many benefits of practicing mindful sleep for better sleep and overall health. Mindful sleep practices can help reduce stress, improve emotional regulation, and promote relaxation for restful sleep.

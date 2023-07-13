@@ -1,4 +1,4 @@
-Chapter 7: Mindful Sleep and Well-being: Benefits of Mindful Sleep for Mental and Physical Well-being
+Benefits of Mindful Sleep for Mental and Physical Well-being
 =====================================================================================================
 
 In this chapter, we will explore the many benefits of practicing mindful sleep for mental and physical well-being.

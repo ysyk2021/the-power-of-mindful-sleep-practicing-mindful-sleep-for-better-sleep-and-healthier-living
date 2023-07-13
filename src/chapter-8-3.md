@@ -1,4 +1,4 @@
-Chapter 7: Mindful Sleep and Well-being: Building Resilience Through Mindful Sleep
+Building Resilience Through Mindful Sleep
 ==================================================================================
 
 In this chapter, we will explore how mindful sleep practices can help build resilience and improve overall well-being.

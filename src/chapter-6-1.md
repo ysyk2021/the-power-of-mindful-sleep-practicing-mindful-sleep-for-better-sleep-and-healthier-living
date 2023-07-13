@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles to Mindful Sleep: Common Barriers to Practicing Mindful Sleep
+Common Barriers to Practicing Mindful Sleep
 =============================================================================================
 
 In this chapter, we will explore common barriers that can interfere with a regular mindful sleep practice and provide strategies for overcoming them.

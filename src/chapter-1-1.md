@@ -1,4 +1,4 @@
-Introduction: Overview of the Book
+Overview of the Book
 ==================================
 
 In this book, we will explore the concept of mindful sleep and how it can improve your overall health and well-being. We will discuss the importance of sleep, the stages of sleep, and the impact of sleep on physical and mental health.

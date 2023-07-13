@@ -1,4 +1,4 @@
-Chapter 7: Mindful Sleep and Well-being: Managing Chronic Pain and Illness with Mindful Sleep
+Managing Chronic Pain and Illness with Mindful Sleep
 =============================================================================================
 
 In this chapter, we will explore how practicing mindful sleep can help manage chronic pain and illness for improved well-being.
