@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 8: Conclusion
-=====================
-
 In this book, we have explored the concept of mindful sleep and its benefits for better sleep and overall well-being. We have discussed the importance of sleep, the stages of sleep, the impact of sleep on physical and mental health, and the relationship between mindfulness and sleep.
 
 We have provided practical strategies for incorporating mindful sleep into your daily routine, including creating a bedtime routine, practicing good sleep hygiene, taking power naps, meditating during breaks, using mindful sleep apps, and incorporating movement into daily routines.
