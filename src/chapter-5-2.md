@@ -1,4 +1,4 @@
-Chapter: Benefits of Mindful Sleep for Mental and Physical Health
+Benefits of Mindful Sleep for Mental and Physical Health
 =================================================================
 
 In this chapter, we will explore the numerous benefits of practicing mindful sleep for our mental and physical well-being. Mindful sleep involves adopting a conscious and intentional approach to our sleep habits, fostering a deeper connection with our body and mind. By incorporating mindfulness into our sleep routines, we can experience improved sleep quality, reduced stress, enhanced emotional well-being, and better overall health.

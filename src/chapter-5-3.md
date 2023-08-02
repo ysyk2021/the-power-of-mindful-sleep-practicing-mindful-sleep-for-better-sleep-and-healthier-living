@@ -1,4 +1,4 @@
-Chapter: Letting Go of Stress and Worries through Mindful Sleep
+Letting Go of Stress and Worries through Mindful Sleep
 ===============================================================
 
 In this chapter, we will explore how practicing mindful sleep can help us let go of stress and worries, allowing for a more peaceful and restorative sleep. By incorporating mindfulness techniques into our bedtime routine, we can create a calming environment and cultivate a mindset that promotes deep relaxation and mental rejuvenation.

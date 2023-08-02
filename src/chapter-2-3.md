@@ -1,4 +1,4 @@
-Chapter: Common Sleep Disorders
+Common Sleep Disorders
 ===============================
 
 In this chapter, we will explore some of the most common sleep disorders that affect millions of people worldwide. Understanding these sleep disorders can help us identify potential issues with our sleep and seek appropriate solutions for better sleep and overall well-being.

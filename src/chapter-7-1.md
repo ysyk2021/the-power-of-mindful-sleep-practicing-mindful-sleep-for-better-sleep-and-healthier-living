@@ -1,4 +1,4 @@
-Chapter: The Relationship between Sleep and Productivity
+The Relationship between Sleep and Productivity
 ========================================================
 
 In this chapter, we will explore the intricate relationship between sleep and productivity. We will delve into the ways in which sufficient sleep not only enhances our overall well-being but also significantly impacts our cognitive abilities, focus, creativity, and decision-making skills. Recognizing the importance of a good night's sleep can inspire us to prioritize our sleep habits for increased productivity and success.

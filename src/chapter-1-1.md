@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book
+Overview of the Book
 ===============================
 
 Welcome to "The Power of Mindful Sleep: Practicing Mindful Sleep for Better Sleep and Healthier Living". In this book, we will explore the transformative effects of incorporating mindfulness into your sleep routine. By harnessing the power of mindful sleep, you can enhance the quality of your sleep and experience numerous benefits for your overall well-being.

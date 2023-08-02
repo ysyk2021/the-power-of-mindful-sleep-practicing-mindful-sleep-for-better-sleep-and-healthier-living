@@ -1,4 +1,4 @@
-Chapter: Guided Meditations and Mindfulness Exercises for Sleep
+Guided Meditations and Mindfulness Exercises for Sleep
 ===============================================================
 
 In this chapter, we will explore a variety of guided meditations and mindfulness exercises specifically designed to enhance the practice of mindful sleep. These exercises will help you cultivate a state of relaxation, unwind from the day's activities, and prepare your mind and body for a restful sleep. Incorporating these techniques into your pre-sleep routine can significantly improve sleep quality and contribute to overall healthier living.

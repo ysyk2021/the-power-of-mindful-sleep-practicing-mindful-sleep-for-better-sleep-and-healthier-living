@@ -1,4 +1,4 @@
-Chapter 3: Definition and Benefits of Mindful Sleep
+Definition and Benefits of Mindful Sleep
 ===================================================
 
 In this chapter, we explore the definition and benefits of mindful sleep. Mindful sleep is a holistic approach that combines the practice of mindfulness with the act of sleeping. By mindfully engaging with our sleep routines, we can optimize our sleep experience and reap numerous benefits for our physical, mental, and emotional well-being. Understanding the definition and benefits of mindful sleep will empower us to harness its transformative power and achieve better sleep and healthier living.

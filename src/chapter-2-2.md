@@ -1,4 +1,4 @@
-Chapter: Impact of Sleep on Physical and Mental Health
+Impact of Sleep on Physical and Mental Health
 ======================================================
 
 In this chapter, we will explore the profound impact that sleep has on our physical and mental health. Understanding the importance of sleep in maintaining overall well-being can inspire us to prioritize and optimize our sleep habits for a healthier and more fulfilling life.

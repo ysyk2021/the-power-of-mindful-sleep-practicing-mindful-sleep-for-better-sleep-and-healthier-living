@@ -1,4 +1,4 @@
-Chapter: Using Mindful Sleep to Improve Sleep Quality
+Using Mindful Sleep to Improve Sleep Quality
 =====================================================
 
 In this chapter, we will explore how practicing mindful sleep can help improve the quality of our sleep. Mindful sleep techniques have been shown to enhance relaxation, reduce stress, and promote a deeper and more restorative sleep. By incorporating mindfulness into our sleep routines, we can optimize our sleep experience and wake up feeling refreshed and rejuvenated.

@@ -1,4 +1,4 @@
-Chapter: Strategies to Overcome Barriers
+Strategies to Overcome Barriers
 ========================================
 
 In this chapter, we will explore effective strategies to overcome barriers that may hinder the practice of mindful sleep. While incorporating mindful sleep into your routine can lead to better sleep quality and healthier living, various obstacles might arise along the way. By implementing the following strategies, you can address and overcome these barriers, allowing you to fully embrace the power of mindful sleep.
