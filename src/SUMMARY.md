@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful sleep for better sleep and healthier living](chapter-1-2.md)
 - [Chapter 1: Understanding Sleep](chapter-2.md)
   - [Definition and stages of sleep](chapter-2-1.md)
