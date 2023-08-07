@@ -31,3 +31,4 @@
   - [Managing chronic pain and illness with mindful sleep](chapter-8-2.md)
   - [Building resilience through mindful sleep](chapter-8-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
