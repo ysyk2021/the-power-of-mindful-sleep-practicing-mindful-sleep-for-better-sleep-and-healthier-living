@@ -16,27 +16,27 @@ Before delving into the strategies, it is essential to identify and comprehend t
 
 Now, let's explore effective strategies to address these barriers and cultivate mindful sleep.
 
-1. Mindfulness Meditation
+1\. Mindfulness Meditation
 -------------------------
 
 Mindfulness meditation is a powerful technique that can help calm racing thoughts before bed. Engaging in a short meditation session before sleep allows us to acknowledge and release any lingering worries or stressors, promoting a more peaceful state of mind conducive to restful sleep.
 
-2. Establishing a Digital Detox Routine
+2\. Establishing a Digital Detox Routine
 ---------------------------------------
 
 Creating a digital detox routine involves limiting screen time before bed. Engage in relaxing activities such as reading a book, practicing gentle yoga, or listening to soothing music instead. This break from electronic devices helps reduce exposure to stimulating content and artificial light, facilitating a smoother transition into sleep.
 
-3. Stress Reduction Techniques
+3\. Stress Reduction Techniques
 ------------------------------
 
 Experiment with stress reduction techniques like deep breathing exercises, progressive muscle relaxation, or journaling. These practices can help alleviate anxiety and promote a sense of calmness, making it easier to unwind and prepare for restorative sleep.
 
-4. Optimizing Sleep Environment
+4\. Optimizing Sleep Environment
 -------------------------------
 
 Take steps to optimize your sleep environment by reducing noise, adjusting the temperature, and ensuring comfortable bedding. Create a relaxing ambiance in your bedroom that promotes tranquility and supports uninterrupted sleep.
 
-5. Establishing a Consistent Sleep Schedule
+5\. Establishing a Consistent Sleep Schedule
 -------------------------------------------
 
 Maintaining a regular sleep schedule helps regulate our internal clock, making it easier to fall asleep and wake up naturally. Aim to go to bed and wake up at the same time each day, even on weekends. Consistency in sleep patterns enhances sleep quality and overall well-being.
