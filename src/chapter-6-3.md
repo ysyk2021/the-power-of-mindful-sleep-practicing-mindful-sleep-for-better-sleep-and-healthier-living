@@ -1,5 +1,3 @@
-Sustaining a Regular Mindful Sleep Practice
-====================================================
 
 In this chapter, we will explore strategies and techniques to sustain a regular mindful sleep practice. While initially incorporating mindful sleep into your routine may be relatively easy, maintaining consistency over time can present challenges. By implementing the following strategies, you can overcome obstacles and establish a sustainable mindful sleep practice for better sleep and healthier living.
 

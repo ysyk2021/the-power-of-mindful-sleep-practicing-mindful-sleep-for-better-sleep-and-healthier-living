@@ -1,5 +1,3 @@
-Managing Chronic Pain and Illness with Mindful Sleep
-===============================================================
 
 Chronic pain and illness can significantly impact our quality of life, making it challenging to get restful sleep. In this chapter, we will explore how practicing mindful sleep techniques can help manage chronic pain and illness, promoting better sleep and overall well-being.
 

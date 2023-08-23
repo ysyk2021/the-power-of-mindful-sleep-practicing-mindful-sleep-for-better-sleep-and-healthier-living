@@ -1,5 +1,3 @@
-Evidence-Based Research Supporting the Effectiveness of Mindful Sleep
-================================================================================
 
 In this chapter, we will explore the wealth of evidence-based research that supports the effectiveness of mindful sleep in improving sleep quality and promoting overall well-being. Numerous studies have examined the impact of mindfulness practices on sleep disturbances, insomnia, stress reduction, and mental health. The research highlights the positive outcomes of incorporating mindfulness into our sleep routines.
 

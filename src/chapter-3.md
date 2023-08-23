@@ -1,4 +1,3 @@
-# Chapter 2: Introduction to Mindful Sleep
 
 In this chapter, we will explore the concept of mindful sleep and its benefits. We will also examine the relationship between mindfulness and sleep and review evidence-based research supporting the effectiveness of mindful sleep.
 

@@ -1,5 +1,3 @@
-The Relationship Between Mindfulness and Sleep
-=========================================================
 
 In this chapter, we will explore the intricate relationship between mindfulness and sleep. Mindfulness, the practice of cultivating non-judgmental awareness in the present moment, has a profound impact on our sleep quality and overall sleep experience. By understanding this relationship, we can harness the power of mindfulness to optimize our sleep and enhance our well-being.
 

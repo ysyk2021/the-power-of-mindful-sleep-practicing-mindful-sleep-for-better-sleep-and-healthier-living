@@ -1,4 +1,3 @@
-# Common Barriers to Practicing Mindful Sleep
 
 In this chapter, we will explore common barriers that individuals may encounter when trying to practice mindful sleep. While the benefits of mindful sleep are well-documented, it is essential to address the challenges that can hinder our ability to incorporate this practice into our lives. By understanding these barriers, we can proactively find strategies to overcome them and improve our sleep quality. Let's delve into some of the common barriers to practicing mindful sleep:
 

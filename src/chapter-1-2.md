@@ -1,5 +1,3 @@
-The Importance of Mindful Sleep for Better Sleep and Healthier Living
-================================================================================
 
 In this chapter, we delve into the significance of mindful sleep in achieving better sleep and living a healthier life. Mindful sleep is not merely about the act of sleeping, but rather a holistic approach that encompasses a range of mindfulness practices to optimize our sleep experience and promote overall well-being. By understanding the importance of mindful sleep, we can harness its transformative power to improve our sleep quality and enhance our overall health.
 

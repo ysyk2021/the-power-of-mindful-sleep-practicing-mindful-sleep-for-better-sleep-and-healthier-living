@@ -1,5 +1,3 @@
-Chapter 3: Techniques and Exercises for Mindful Sleep
-=====================================================
 
 In this chapter, we will discuss techniques and exercises for practicing mindful sleep. We will explore guided meditations and mindfulness exercises for sleep, body scan meditation for sleep, and strategies for cultivating a mindful sleep routine.
 

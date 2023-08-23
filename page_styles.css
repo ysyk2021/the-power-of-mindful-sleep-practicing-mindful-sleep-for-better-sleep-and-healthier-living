@@ -1,6 +1,11 @@
+body {
+  font-family: 'Noto Sans';
+}
+
 a {
   color: black;
 }
+
 a:link {
   color: black;
 }
@@ -17,10 +22,18 @@ a:active {
   color: black;
 }
 
-h1, h2, h3, h4, h5, h6 {
-	page-break-before: avoid !important;
-	font-weight: normal;
-	font-style: normal;
-	text-align: left;
-	page-break-after: avoid !important;
+h1,
+h2,
+h3,
+h4,
+h5,
+h6 {
+  page-break-before: avoid !important;
+  font-weight: normal;
+  font-style: normal;
+  text-align: left;
+  line-height: 2.35;
+  margin-top: 2.5em;
+  margin-bottom: 0.8em;
+  page-break-after: avoid !important;
 }

@@ -1,5 +1,3 @@
-Chapter 7: Mindful Sleep and Well-being
-=======================================
 
 In this chapter, we will discuss the benefits of mindful sleep for mental and physical well-being. We will also explore how mindful sleep can help manage chronic pain and illness and build resilience.
 

@@ -1,5 +1,3 @@
-Strategies for Cultivating a Mindful Sleep Routine
-===========================================================
 
 In this chapter, we will explore effective strategies for cultivating a mindful sleep routine. By incorporating these strategies into your daily life, you can establish a consistent and nourishing practice of mindful sleep, paving the way for better sleep and healthier living.
 

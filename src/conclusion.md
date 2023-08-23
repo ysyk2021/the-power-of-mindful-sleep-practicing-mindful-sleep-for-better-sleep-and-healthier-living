@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored the concept of mindful sleep and its benefits for better sleep and overall well-being. We have discussed the importance of sleep, the stages of sleep, the impact of sleep on physical and mental health, and the relationship between mindfulness and sleep.
 

@@ -1,5 +1,3 @@
-Chapter 4: Applying Mindful Sleep in Daily Life
-===============================================
 
 In this chapter, we will discuss how to apply mindful sleep in daily life. We will explore how to use mindful sleep to improve sleep quality, the benefits of mindful sleep for mental and physical health, and how to let go of stress and worries through mindful sleep.
 

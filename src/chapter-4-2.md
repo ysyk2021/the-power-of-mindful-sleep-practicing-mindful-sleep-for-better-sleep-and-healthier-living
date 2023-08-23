@@ -1,5 +1,3 @@
-Body Scan Meditation for Sleep
-=======================================
 
 In this chapter, we will explore the practice of body scan meditation as a powerful tool for promoting deep relaxation and preparing the body for a restful sleep. By incorporating body scan meditation into your bedtime routine, you can enhance your sleep quality and promote overall well-being.
 

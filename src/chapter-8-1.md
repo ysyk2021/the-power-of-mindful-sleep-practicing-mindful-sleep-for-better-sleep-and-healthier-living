@@ -1,5 +1,3 @@
-Benefits of Mindful Sleep for Mental and Physical Well-being
-=======================================================================
 
 Sleep is an essential component of a healthy lifestyle, crucial for both our mental and physical well-being. In recent years, the practice of mindful sleep has gained recognition for its ability to enhance the quality of our sleep and improve various aspects of our overall health. This chapter explores the numerous benefits that mindful sleep brings to our mental and physical well-being.
 

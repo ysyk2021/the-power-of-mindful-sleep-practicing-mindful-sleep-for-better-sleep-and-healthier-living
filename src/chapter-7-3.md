@@ -1,5 +1,3 @@
-Techniques for Incorporating Mindful Sleep into Work and Daily Routines
-================================================================================
 
 In this chapter, we will explore practical techniques for incorporating mindful sleep into our work and daily routines. By integrating mindfulness into our sleep habits, we can enhance our well-being, improve sleep quality, and experience the numerous benefits of mindful sleep throughout our day. These techniques offer simple yet effective ways to cultivate a mindful sleep practice within the context of our busy lives.
 

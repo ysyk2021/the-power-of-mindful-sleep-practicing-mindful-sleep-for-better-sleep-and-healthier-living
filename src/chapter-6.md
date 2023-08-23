@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles to Mindful Sleep
-================================================
 
 Common barriers to practicing mindful sleep
 -------------------------------------------

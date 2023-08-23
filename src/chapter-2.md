@@ -1,4 +1,3 @@
-# Chapter 1: Understanding Sleep
 
 In this chapter, we will explore the importance of sleep and its impact on our physical and mental health. We will also discuss the common types of sleep disorders that can disrupt our sleep patterns.
 

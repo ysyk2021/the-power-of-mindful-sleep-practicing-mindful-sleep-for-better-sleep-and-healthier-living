@@ -1,5 +1,3 @@
-Building Resilience Through Mindful Sleep
-====================================================
 
 Sleep is not only a vital component of our overall well-being but also plays a significant role in building resilience. In this chapter, we will explore how practicing mindful sleep can enhance our ability to cope with challenges and bounce back from adversity.
 

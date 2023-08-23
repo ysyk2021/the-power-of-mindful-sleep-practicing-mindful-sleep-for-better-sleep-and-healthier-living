@@ -1,5 +1,3 @@
-Definition and Stages of Sleep
-=======================================
 
 In this chapter, we will explore the definition of sleep and delve into the different stages of sleep that our bodies go through during a typical night. Understanding the various stages of sleep is crucial for developing a deeper awareness of our sleep patterns and optimizing our overall sleep health.
 
